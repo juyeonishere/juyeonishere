@@ -6,5 +6,9 @@
 
 <center><span style='background-color:#ffdce0';><b>별로 정상적이지는 않음을 명시함</b></span></center>
 
+|      |      |
+| ---- | ---- |
+|      |      |
+
 
 
