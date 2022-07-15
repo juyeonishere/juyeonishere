@@ -1,4 +1,4 @@
-![까마귀](https://th.bing.com/th/id/OIP.5xoEViGs_Kgz4ferFLUFAAHaD4?w=305&h=180&c=7&r=0&o=5&pid=1.7)
+<center>![까마귀](https://th.bing.com/th/id/OIP.5xoEViGs_Kgz4ferFLUFAAHaD4?w=305&h=180&c=7&r=0&o=5&pid=1.7)</center>
 
 <div align='center'>* 꾸꾺깎까꾸꾸까까깎 *</div>
 
